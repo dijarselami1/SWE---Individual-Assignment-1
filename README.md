@@ -1,2 +1,2 @@
 # Full Name
-Dißjar Selami
+Dijar Selami
